@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Jimma University**
 
-- 📫 How to reach me **muhammedabdulhafiz1993@gmail.com**
+- 📫 How to reach me **muhammedabdulhafizwork@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
